@@ -1,4 +1,4 @@
-### Hi there 👋
+### I am Susmit Sharad Borala, student in GHRCEM IT Branch 👋
 
 <!--
 **SSB-0820/SSB-0820** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
